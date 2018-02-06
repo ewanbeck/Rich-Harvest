@@ -1,4 +1,4 @@
-https://ewanbeck.github.io/Rich-Harvest
+https://ewanbeck.github.io/RichHarvest
 
 This site came from an idea taken from a dream.
 what if mice where crawling over a compter keyboard? what would they really be tryin to say?
